@@ -1,2 +1,11 @@
 # SwingScaleHawkins
-Swing application
+
+Dr David R Hawkins Levels of Consciousness
+According to Hawkins we, as humans, live at vastly different "levels" of consciousness. All these levels, along with the "truth level" of ANY true/false style inquiry, can be tested for truth and numerically "calibrated" through muscle testing, on a logarithmic scale of 1-1000. According to Hawkins, any person, concept, thought or object that calibrates at 200 (The level of Integrity) or above is positive ("power"); anything below 200 is negative ("force"). http://www.spiritualteachers.org/david-hawkins/ How To Raise Your Level Of Consciousness Through Meditation https://www.youtube.com/watch?v=9vydsuhnqSY or with the help of other methods, for example, the method of Sedona or Spiritual Integration of the famous Russian psychologist Konstantin Dowlatov.
+
+Die Bewusstseinsebenen.
+Die Bewusstseinsebenen Hawkins entwickelte aus eigenen spirituellen Erfahrungen und seinen kinesiologischen Tests heraus eine „Skala des Bewusstseins“. Auf dieser ordnete er Dingen wie Personen, Konzepten, Büchern, Filmen etc. Werte zwischen 1 und 1000 zu. Die Skala wird nach unten begrenzt von Null(Tod/kein Bewusstsein) und nach oben durch die Tausend, nach seiner Aussage die höchste von Menschen erreichbare Bewusstseinsebene. https://de.wikipedia.org/wiki/David_R._Hawkins https://de.spiritualwiki.org/hawkins/skala Um auf diese Scala steigen zu können, verwendet man verschidene Methode, z.B als Sedona Method, Spiritual Integrationics von berühmten russischen Psychologe Konstantin Dowlatov, usw.
+
+
+Инструмент самостоятельного улучшения жизни
+Известный исследователь сознания Дэвид Хокинс с помощью прикладной кинезиологии вывел карту сознания.https://econet.ru/articles/179953-opredelyaem-svoy-uroven-soznaniya-po-devidu-hokinsu Согласно этой карте, человеческое сознание поделено на уровни, каждому из которых соответствует доминирующая эмоция и восприятие жизни, а также доступно определенное количество энергии. Чем выше по шкале мы поднимаемся, тем соответственно, количество жизненной энергии увеличивается, и восприятие жизни меняется в лучшую сторону, чем ниже - ниже наша энергия и эмоции более негативные. В каждый момент жизни есть преобладающее «нормальное» состояние. "Подняться" выше по шкале Хокинса помогут различные методики. Наиболее эффективной является Духовная Интеграционика известного Мастера Константина Довлатова https://http://di.dowlatow.ru/
